@@ -38,13 +38,6 @@ https://www.youtube.com/watch?v=lcqFakn2maM&t=235s
 
 ---
 
-## **Screenshots:**
-
-![Screenshot 2025-01-02 at 11.15.19 AM.png](https://prod-files-secure.s3.us-west-2.amazonaws.com/79acf719-ee15-4ffd-a8ab-776e70b1b45e/2b63f35c-7b85-462b-838c-7836b174ab59/Screenshot_2025-01-02_at_11.15.19_AM.png)
-
-![Screenshot 2025-01-02 at 11.16.42 AM.png](https://prod-files-secure.s3.us-west-2.amazonaws.com/79acf719-ee15-4ffd-a8ab-776e70b1b45e/c301e614-607e-4698-93e7-e121dcd04bb1/Screenshot_2025-01-02_at_11.16.42_AM.png)
-
-![Screenshot 2025-01-02 at 11.17.15 AM.png](https://prod-files-secure.s3.us-west-2.amazonaws.com/79acf719-ee15-4ffd-a8ab-776e70b1b45e/b8cedc1b-eeac-4975-a7c4-0c7e66e8e512/Screenshot_2025-01-02_at_11.17.15_AM.png)
 
                       Crypto meets Upi 
 
